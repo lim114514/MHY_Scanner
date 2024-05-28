@@ -1,2 +1,5 @@
 # MHY_Scanner
-轮椅主播朋友专用版
+## 林泽，俺想你了
+😭
+## 方块人
+https://xibei1204.icu/query_cur_region
